@@ -1,1 +1,1 @@
-BI Data Engineer 💻 | Talend Expert 🚀 | Husband & Fath3r 🏡
+Data Peonyr 💻 | Talend + Microsoft Certified 🚀 | Co-Founder of the Jantke Five 🏡
